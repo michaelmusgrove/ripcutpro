@@ -1,2 +1,2 @@
-# Powerfunding
-Powerfunding activities
+# Rip Cut Pro
+Rip Cut Pro activities
